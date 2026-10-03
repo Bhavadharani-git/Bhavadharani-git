@@ -107,8 +107,7 @@ Currently working on expanding my project portfolio with new applications and AI
 ## 🤝 Connect With Me
 
 - 💻 GitHub: [@Bhavadharani-git](https://github.com/Bhavadharani-git)
-- 💼 LinkedIn: https://www.linkedin.com/in/bhavadharani-s-366415378
-
+- 💼 LinkedIn: [Bhavadharani S](https://www.linkedin.com/in/bhavadharani-s-366415378)
 ---
 
 ⭐ Thanks for visiting my profile!
